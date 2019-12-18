@@ -1,0 +1,1 @@
+Dokumen GDPR Uni Eropa
